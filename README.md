@@ -1,2 +1,17 @@
 # human
-https://server.fmovies21.com/
+=========
+
+topmovies
+streaming
+keren
+alus
+hade
+apik
+pokonamah
+dijamin
+ulah
+sieun
+goreng
+gambar
+naa
+sae
